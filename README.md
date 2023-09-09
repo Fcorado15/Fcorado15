@@ -1,5 +1,4 @@
-# 💫 About Me:
--actualmente no estoy trabajando, pero estoy cursando segundo semestre de ingeniería en sistemas, necesito hacer amigos para aprender mas :(<br>-Currently I am not working, but I am studying the second semester of systems engineering, I need to make friends to learn more :(
+
 
 
 ## 🌐 Socials:
